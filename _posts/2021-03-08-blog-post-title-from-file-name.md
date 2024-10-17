@@ -1,32 +1,12 @@
-## Blog Post Title From First Header
+## Project Euler
 
-Due to a plugin called `jekyll-titles-from-headings` which is supported by GitHub Pages by default. The above header (in the markdown file) will be automatically used as the pages title.
+I was introduced to Project Euler in 2013, when I was still in high school. It was introduced to me as someone who liked math and coding (at this time it was mainly web design). I think I did maybe 20 or so in high school.
+In college, when I had settled on CS, my roommate (a non-CS major, I still have no idea how he knew about PE) and I would do them, sometimes together and sometimes separately. I've done PE continuously since then.
 
-If the file does not start with a header, then the post title will be derived from the filename.
-
-This is a sample blog post. You can talk about all sorts of fun things here.
-
+<img src='https://projecteuler.net/profile/wendl155.png'>
 ---
 
 ### This is a header
 
-#### Some T-SQL Code
 
-```tsql
-SELECT This, [Is], A, Code, Block -- Using SSMS style syntax highlighting
-    , REVERSE('abc')
-FROM dbo.SomeTable s
-    CROSS JOIN dbo.OtherTable o;
-```
-
-#### Some PowerShell Code
-
-```powershell
-Write-Host "This is a powershell Code block";
-
-# There are many other languages you can use, but the style has to be loaded first
-
-ForEach ($thing in $things) {
-    Write-Output "It highlights it using the GitHub style"
-}
 ```
