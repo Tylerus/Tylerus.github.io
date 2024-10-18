@@ -7,5 +7,3 @@ In college, when I had settled on CS, my roommate (a non-CS major, I still have 
 ---
 
 I will abide by the rules of PE and not give out any secrets / share any code, but if there are any insights / helpful things I have learned from working on PE I will put them here. It's a great way to stay sharp on programming basics + some number theory.
-
-```
