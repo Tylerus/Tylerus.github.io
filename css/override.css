@@ -1,6 +1,10 @@
+.wrapper {
+  background-image: url(../assets/dinos-stars.gif);
+}
+
 body {
  font-family: Times, "Times New Roman", serif;
- background-image: url(../assets/dinos-stars.gif);
+
 }
 
 hr {
