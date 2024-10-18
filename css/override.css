@@ -1,5 +1,6 @@
-.wrapper {
+.site-title,.siste-title:visited {
   background-image: url(../assets/dinos-stars.gif);
+  color: white;
 }
 
 body {
@@ -26,7 +27,7 @@ hr {
   padding: 0 2.2em;
   width: 50%;
   position: relative;
-  color: white !important;
+  color: #fefefe !important;
 }
 
 .post_navi .nav_prev {
