@@ -11,5 +11,3 @@ Of primary interest is AndroR2, the database of github issues for mobile apps th
 You can find the repository of the APKs with bugs, alongside their steps to reproduce, here: https://github.com/SageSELab/AndroR2/tree/main/
 
 Of interest is the web crawler that I built to page through github and find Android bugs. It's a pretty simple script, uses Python to call github api (it uses github search, and filters by the day, so that it never gets more than x results and hits the query limit). Github issues are stored as JSON in a mongoDB database (I just used the mongo UI + localhost, nothing fancy). It's a little bit jerry-rigged (I was coding it during covid! give me a break!) But i promise at one point it worked. Feel free to shoot me an email or something if it doesn't work and you want to take a crack at it.
-
-```
