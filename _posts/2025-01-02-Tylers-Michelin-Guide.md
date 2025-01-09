@@ -5,7 +5,7 @@ There are a lot of hobbies that I am not very good at at first, and there are so
 *You can add me on beli @chefTyler*
 
 ## Tyler's Michelin Guide: Fancy/Notable Restaurants I have been to
-### ⍟ - Designates a michelin star
+#### ⍟ - Denotes a michelin star
 
 ### ⍟⍟⍟ Alinea - Chicago
 
@@ -18,5 +18,5 @@ There are a lot of hobbies that I am not very good at at first, and there are so
 ### ⍟ The Progress - San Francisco
 
 ### ⍟ iDen & QuanJuDe Beijing Duck House - Vancouver
-#### Panda Express - The Minneapolis-St Paul Airport
-#### Subway - Waseca, Minnesota
+### Panda Express - The Minneapolis-St Paul Airport
+### Subway - Waseca, Minnesota
