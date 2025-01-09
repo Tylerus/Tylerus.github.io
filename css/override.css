@@ -54,6 +54,6 @@ hr {
   opacity: 0.3;
 }
 
-a.site-title {
+a.site-title .site-header{
  color: white;
 }
