@@ -7,6 +7,10 @@ For 2025, I have set a goal to listen to 50 albums end-to-end. The goal here is 
 Jan 4 -
 Recommended per Rolling Stone's list of best albums. I recently watched *A Complete Unknown* and lamented not knowing a ton of Dylan. It's -1 when I am hearing this, waiting for the Blue Line train, and I'm standing on a bench trying to keep my hands warm on the train station's electric heaters. Feels good to be back in the Midwest.
 
+Like a Rolling Stone is Great and is I believe my first Dylan song ever from when I was a kid listening to  89.3's *The Current* in my old minivan in high school.
+
+After seeing *A Complete Unknow
+
  I found this to be pretty pleasant but not a knockout. There's plenty more Dylan on this list though, so I will be returning here.
 ## 2. Joni Mitchell - Blue
 ### Where I listened to this: Chicago Public Transit
@@ -25,7 +29,7 @@ This album made me very emotional very quickly!
 ### Where I listened to this: A Greyhound Between Wisconsin and Illinois
 Jan 5
 
-
+***
 On Deck (have not listened to yet)
 
 Rumours - Fleeteood Mac
