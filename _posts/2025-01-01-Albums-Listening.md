@@ -1,6 +1,6 @@
 ## The 2025 Listening Tour
 
-For 2025, I have set a goal to listen to 50 albums end-to-end. The goal here is to expose myself to new music, to music that my friends and family find important, and to give me something to write about.
+For 2025, I have set a goal to listen to 50 albums end-to-end. The goal here is to expose myself to new music, to music that my friends and family find important, and to give me something to write about. Music is something I find that I have a tough time exploring organically, so I like the goal of it.
 
 ## 1. Bob Dylan - Highway 61 Revisited
 ### Where I listened to this: Minneapolis Public Transit
@@ -13,8 +13,13 @@ Recommended per Rolling Stone's list of best albums. I recently watched *A Compl
 Jan 5 -
 My Joni Mitchell knowledge, honestly, only extended as far as 'Big Yellow Taxi', which I only knew from the *Counting Crows* cover. All I knew about Ms. Mitchell was her relationship with James Taylor ahead of this album being released.
 
-I might be a bit soft, but I
+I'm in line waiting for Amtrak, and maybe it's just because our train was just canceled, but three songs in and these are getting to me immediately. I feel soft. I found these instantly moving and sad. These are songs you would send to an ex girlfriend if you wanted to start a war.
 
+A fun connection this album helped me make is the line you can draw from Joni Mitchell to Bjork. I googled their names together and discovered and read a bit how Bjork takes a lot of inspiration from Mitchell, and this album makes it seem obvious.
+
+I ended up listening to this one a lot while in Chicago, more than I expected. I really like this one as an album. Favorites include the first two, 'California', and 'A Case of You'. The Christmas one I skipped a few times, maybe because it's early January and I don't really want any more Christmas music.
+
+This album made me very emotional very quickly!
 
 ## 3. Stevie Wonder - Songs in The Key of Life
 ### Where I listened to this: A Greyhound Between Wisconsin and Illinois
