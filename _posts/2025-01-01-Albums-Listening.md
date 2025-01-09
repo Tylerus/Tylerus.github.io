@@ -27,11 +27,13 @@ This album made me very emotional very quickly!
 
 ## 3. Stevie Wonder - Songs in The Key of Life
 ### Where I listened to this: A Greyhound Between Wisconsin and Illinois
-Jan 5
+Jan 5 - This one is Rolling Stone's #1 Best album of all time. Of the three albums so far, this is the one of which I recognize the most songs - Sir Duke, Isn't She Lovely, I Wish.
+
+There's so much going on here, Stevie Wonder jumps around a lot between ideas. A lot more focus on civil rights than I knew about. But it all molds together pretty well. Wonder has a really great voice, and this is definitely the album with the most going on musically so far.
 
 ***
-On Deck (have not listened to yet)
-
+On Deck (have not listened to yet, and in no special order)
+#### *Got an album you want to add? Reach out, and I'll probably add it.*
 Rumours - Fleeteood Mac
 Purple Rain - Prince and the Revolution
 Blood on the tracks - Bob Dylan
@@ -52,7 +54,6 @@ Love and rockets - love and rockets
 Dead mans party - oingo boingo
 Multitude - stromae
 DIM the gazzette
-
 **AARON**
 Blue Rev - Alvvays
 Pure Comedy - Father John Misty
