@@ -9,7 +9,9 @@ Recommended per Rolling Stone's list of best albums. I recently watched *A Compl
 
 Like a Rolling Stone is Great and is I believe my first Dylan song ever from when I was a kid listening to  89.3's *The Current* in my old minivan in high school.
 
-After seeing *A Complete Unknow
+After seeing *A Complete Unknown*, getting to *Highway 61 Revisited* and hearing the slide whistle was like seeing a celebrity.
+
+TBH I winced at the 11 minute runtime of *Desolation Row* but I ended up liking that one quite a bit. I think the only one that grated me a bit was *Ballad of a Thin Man*. I didn't care for Dylan's questions to Mr. Jones.
 
  I found this to be pretty pleasant but not a knockout. There's plenty more Dylan on this list though, so I will be returning here.
 ## 2. Joni Mitchell - Blue
