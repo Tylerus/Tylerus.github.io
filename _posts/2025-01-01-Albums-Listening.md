@@ -25,7 +25,7 @@ A fun connection this album helped me make is the line you can draw from Joni Mi
 
 I ended up listening to this one a lot while in Chicago, more than I expected. I really like this one as an album. Favorites include the first two, 'California', and 'A Case of You'. The Christmas one I skipped a few times, maybe because it's early January and I don't really want any more Christmas music.
 
-This album made me very emotional very quickly!
+This album made me very emotional very quickly! I teared up on my way home to Seattle, while on - where else? - the *Blue Line*.
 
 ## 3. Stevie Wonder - Songs in The Key of Life
 ### Where I listened to this: A Greyhound Between Wisconsin and Illinois
