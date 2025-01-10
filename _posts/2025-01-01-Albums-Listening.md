@@ -2,6 +2,8 @@
 
 For 2025, I have set a goal to listen to 50 albums end-to-end. The goal here is to expose myself to new music, to music that my friends and family find important, and to give me something to write about. Music is something I find that I have a tough time exploring organically, so I like the goal of it.
 
+You can ask people for songs, and you can ask people for playlists, and both are great. Asking someone for an album, however, is a much more personal request. You're not just giving someone an earworm, you're intentionally giving them an artist's finished work.
+
 ## 1. Bob Dylan - Highway 61 Revisited
 ### Where I listened to this: Minneapolis Public Transit
 Jan 4 -
@@ -33,10 +35,48 @@ Jan 5 - This one is Rolling Stone's #1 Best album of all time. Of the three albu
 
 There's so much going on here, Stevie Wonder jumps around a lot between ideas. A lot more focus on civil rights than I knew about. But it all molds together pretty well. Wonder has a really great voice, and this is definitely the album with the most going on musically so far.
 
+## 4. Alvvways - Blue Rev
+### Where I listened to this: At work
+Recommended by my friend Aaron, my first recommendation by word of mouth.
+
+
+## 5. Fleetwood Mac - Rumours
+### Where I listened to this: At work
+Jan 9 - My friend KC told me all about *Daisy Jones & the Six* which piqued my interest in this album, as I really like the idea of exploring albums that are snapshots of stories or the lives of people. I don't know how close *Daisy Jones* is to *Rumours*, but I love a mess.
+
+*Dreams* of course got recent acclaim for that juice-drinking skateboard guy. It's definitely the one I've heard the most on this list.
+
+A woman I was seeing once put *Never going back again* on after we left a party. It's nice, I didn't expect it right after *Dreams*.
+
+I was racking my head about how I knew *Don't stop* - was it featured in some cheesy movie or something? Wikipedia suggests I know it from Bill Clinton's DNC speeches, and *WhatSong* says it's been on the Simpsons twice. Probably a mix of those two. Apparently Bill Clinton is a big Fleetwood Mac fan - hell yeah dude.
+
+Of the albums, this one I think one is the first one where I know most of the songs. The challenge of me then is to fit them within the greater context of the album. Like, I know *The Chain* and *Go Your Own Way*, but do I understand why one goes before the other?
+
+I think this is the first one I felt like I didn't have a lot of energy for. Stevie Nicks is great and the music is fine. But not a lot of enthusiasm to explore it. I have a bit of a fixed mindset with this one. hm.
+
+## 6. Prince - Purple Rain
+### Where I listened to this: On the bus
+Jan 9 - Prince! The man from Minnesota. I love the way Minnesota loves Prince. My experience with Prince is shaped a lot by parents and teachers, who pretty much universally revered him growing up. Unlike Dylan, Prince owned the 'being from Minnesota' label a lot more, and I think people really aprpeciate that. But also, he just makes a lot of really good music. I like a lot of Prince songs, I liked listening to *The Current's* 'Purple Current' Playlist when he died. But it's time to give him the album treatment.
+
+OK, so you know how I knew a lot of songs on *Rumours* and it seemed to drag on my listening? All the songs on *Purple Rain* that I know only add to the fun. I'm having a lot of fun with this.
+
+I don't know if it's the Violin or Cello that's doing the thing in *Take Me With You* but it's Taking Me With It.
+
+An Ex who took a University of Minnesota class once informed me that *When Doves Cry* is special because it is the rare funk song that doesn't have a baseline. It's a [pretty fascinating exclusion](https://faroutmagazine.co.uk/the-lost-bass-line-of-prince-hit-when-doves-cry/) (including a Stevie Nicks cameo!).
+
+As a writer, it's important for me to acknowledge my personal biases in these albums. So it's critical to acknowledge that I grew up with people talling me that Prince is great. But, I really think that Prince is really really great. I love how a lot of songs are split into different pieces. I love the synthesizers and the strings, I love that they feel kind of dated. I love how every chorus is distinctly different just by how he sings.
+
+### OFFICIAL POWER RANKING (Subject to change.)
+1. Blue
+2. Purple Rain
+3. Songs in the Key Of Life
+4. Highway 61 Revisited
+5. Rumours
+6.
+
 ***
-On Deck (have not listened to yet, and in no special order)
+### On Deck (have not listened to yet, and in no special order)
 #### *Got an album you want to add? Reach out, and I'll probably add it.*
-Rumours - Fleeteood Mac
 Purple Rain - Prince and the Revolution
 Blood on the tracks - Bob Dylan
 I never loved a man the way I loved you - Aretha franklin
@@ -57,7 +97,6 @@ Dead mans party - oingo boingo
 Multitude - stromae
 DIM the gazzette
 **AARON**
-Blue Rev - Alvvays
 Pure Comedy - Father John Misty
 Ants From Up There - Black Country, New Road
 IV - BADBADNOTGOOD 
@@ -75,7 +114,11 @@ epic - the musical
 Ruth - nana grizol
 Love it love it - nana grizol
 Tbh anything nana grizol
-Sister species - light exchanges or closer now
+Sister species - light exchanges or closer now *(important note: must listen by water!!)*
 Psychic reader - Bad bad hats
 Ezra furman - day of the dog to start but also others
 Old Teagan and Sara - 2002 ish
+**LOGAN**
+Live at MSG or Mr Finish Line by Vulfpeck
+Led Zepplin Illinois
+Satan i gatan - Veronica Maggio
