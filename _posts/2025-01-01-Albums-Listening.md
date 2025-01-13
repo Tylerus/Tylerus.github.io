@@ -27,7 +27,8 @@ A fun connection this album helped me make is the line you can draw from Joni Mi
 
 I ended up listening to this one a lot while in Chicago, more than I expected. I really like this one as an album. Favorites include the first two, 'California', and 'A Case of You'. The Christmas one I skipped a few times, maybe because it's early January and I don't really want any more Christmas music.
 
-This album made me very emotional very quickly! I teared up on my way home to Seattle, while on - where else? - the *Blue Line*.
+This album made me very emotional very quickly, and it also made me emotional on subsequent listens. At the very end of my trip to Chicago I hopped on the Subway going to O'Hare and was struck by something emotional that had grately affected me during my trip. I listened to this album and by the time I got to *My Old Man* I began to cry. I found this fitting, I think, as I was on the *Blue line*.
+
 
 ## 3. Stevie Wonder - Songs in The Key of Life
 ### Where I listened to this: A Greyhound Between Wisconsin and Illinois
@@ -37,8 +38,14 @@ There's so much going on here, Stevie Wonder jumps around a lot between ideas. A
 
 ## 4. Alvvways - Blue Rev
 ### Where I listened to this: At work
-Recommended by my friend Aaron, my first recommendation by word of mouth.
+Recommended by my friend Aaron, my first recommendation from a friend. Speaking on *Blue Rev*, Aaron writes: *I love it so much. It has such a strong melancholic yearning vibe. Very morose and learning to move past heartbreak and finding yourself after a difficult time.* (Aaron has a Medium page you can check out [here](https://medium.com/@amv1352))
 
+Molly Rankin & Alvvays don't introduce themselves at the beginning of their album - they plow fast into *Pharmacist*. It's short, tight. I like her vocals. A little *Mazzy Star* in some places.
+*After the Earthquake* is very Johnny Marr, and I mean that with lots of love coming from my days as an angsty 15 year old. The album later follows up with *Pressed*, which is even moreso like the Smiths. Some of these songs could be on *The Queen is Dead*. This doesn't last, however; by the time you get to *Tile By Tile* you are in a completely different world.
+The second half of the album mostly maintains the energy as the first half, with a few breaks for air. I think I'll end up enjoying the first half of the album more; I think I'm just both an adrenaline junkie and a fan of the guitars. 
+This album is considered [Shoegaze](https://en.wikipedia.org/wiki/Shoegaze), a genre I had never heard of before. As a guest to the genre, I found it quite nice. As mentioned, my adulation for the Smiths makes me suceptible to guitars with distortion. I'm not sure if it's an element of the genre, or just that this is the first album I have listened to sofar that came out after the year 1985, but the sound is very tight and put-together, it doesn't let you lose focus on it. Tightly-wound.
+
+I quite like *Blue Rev* as an album. I think on the marks of giving me something that behaves as an album, Aaron succeeded. It's early since listening, but I think right now I would struggle to listen to any of these songs not in order. That will probably fade. We'll see if *Blue Rev* has staying power in my rotation, but it certainly succeeds as an album.
 
 ## 5. Fleetwood Mac - Rumours
 ### Where I listened to this: At work
@@ -55,7 +62,7 @@ Of the albums, this one I think one is the first one where I know most of the so
 I think this is the first one I felt like I didn't have a lot of energy for. Stevie Nicks is great and the music is fine. But not a lot of enthusiasm to explore it. I have a bit of a fixed mindset with this one. hm.
 
 ## 6. Prince - Purple Rain
-### Where I listened to this: On the bus
+### Where I listened to this: On the bus from Bellevue to Seattle
 Jan 9 - Prince! The man from Minnesota. I love the way Minnesota loves Prince. My experience with Prince is shaped a lot by parents and teachers, who pretty much universally revered him growing up. Unlike Dylan, Prince owned the 'being from Minnesota' label a lot more, and I think people really aprpeciate that. But also, he just makes a lot of really good music. I like a lot of Prince songs, I liked listening to *The Current's* 'Purple Current' Playlist when he died. But it's time to give him the album treatment.
 
 OK, so you know how I knew a lot of songs on *Rumours* and it seemed to drag on my listening? All the songs on *Purple Rain* that I know only add to the fun. I'm having a lot of fun with this.
@@ -77,7 +84,6 @@ As a writer, it's important for me to acknowledge my personal biases in these al
 ***
 ### On Deck (have not listened to yet, and in no special order)
 #### *Got an album you want to add? Reach out, and I'll probably add it.*
-Purple Rain - Prince and the Revolution
 Blood on the tracks - Bob Dylan
 I never loved a man the way I loved you - Aretha franklin
 The banana album - velvet underground
@@ -122,3 +128,5 @@ Old Teagan and Sara - 2002 ish
 Live at MSG or Mr Finish Line by Vulfpeck
 Led Zepplin Illinois
 Satan i gatan - Veronica Maggio
+**JESSICA**
+Roger Waters - Amused to death
