@@ -42,7 +42,9 @@ Jan 10 - Recommended by my friend Aaron, my first recommendation from a friend. 
 
 Molly Rankin & Alvvays don't introduce themselves at the beginning of their album - they plow fast into *Pharmacist*. It's short, tight. I like her vocals. A little *Mazzy Star* in some places.
 *After the Earthquake* is very Johnny Marr, and I mean that with lots of love coming from my days as an angsty 15 year old. The album later follows up with *Pressed*, which is even moreso like the Smiths. Some of these songs could be on *The Queen is Dead*. This doesn't last, however; by the time you get to *Tile By Tile* you are in a completely different world.
+
 The second half of the album mostly maintains the energy as the first half, with a few breaks for air. I think I'll end up enjoying the first half of the album more; I think I'm just both an adrenaline junkie and a fan of the guitars. 
+
 This album is considered [Shoegaze](https://en.wikipedia.org/wiki/Shoegaze), a genre I had never heard of before. As a guest to the genre, I found it quite nice. As mentioned, my adulation for the Smiths makes me suceptible to guitars with distortion. I'm not sure if it's an element of the genre, or just that this is the first album I have listened to sofar that came out after the year 1985, but the sound is very tight and put-together, it doesn't let you lose focus on it. Tightly-wound.
 
 I quite like *Blue Rev* as an album. I think on the marks of giving me something that behaves as an album, Aaron succeeded. It's early since listening, but I think right now I would struggle to listen to any of these songs not in order. That will probably fade. We'll see if *Blue Rev* has staying power in my rotation, but it certainly succeeds as an album.
