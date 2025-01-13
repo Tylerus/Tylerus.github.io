@@ -38,7 +38,7 @@ There's so much going on here, Stevie Wonder jumps around a lot between ideas. A
 
 ## 4. Alvvways - Blue Rev
 ### Where I listened to this: At work
-Recommended by my friend Aaron, my first recommendation from a friend. Speaking on *Blue Rev*, Aaron writes: *I love it so much. It has such a strong melancholic yearning vibe. Very morose and learning to move past heartbreak and finding yourself after a difficult time.* (Aaron has a Medium page you can check out [here](https://medium.com/@amv1352))
+Jan 10 - Recommended by my friend Aaron, my first recommendation from a friend. Speaking on *Blue Rev*, Aaron writes: *I love it so much. It has such a strong melancholic yearning vibe. Very morose and learning to move past heartbreak and finding yourself after a difficult time.* (Aaron has a Medium page you can check out [here](https://medium.com/@amv1352))
 
 Molly Rankin & Alvvays don't introduce themselves at the beginning of their album - they plow fast into *Pharmacist*. It's short, tight. I like her vocals. A little *Mazzy Star* in some places.
 *After the Earthquake* is very Johnny Marr, and I mean that with lots of love coming from my days as an angsty 15 year old. The album later follows up with *Pressed*, which is even moreso like the Smiths. Some of these songs could be on *The Queen is Dead*. This doesn't last, however; by the time you get to *Tile By Tile* you are in a completely different world.
@@ -46,7 +46,7 @@ The second half of the album mostly maintains the energy as the first half, with
 This album is considered [Shoegaze](https://en.wikipedia.org/wiki/Shoegaze), a genre I had never heard of before. As a guest to the genre, I found it quite nice. As mentioned, my adulation for the Smiths makes me suceptible to guitars with distortion. I'm not sure if it's an element of the genre, or just that this is the first album I have listened to sofar that came out after the year 1985, but the sound is very tight and put-together, it doesn't let you lose focus on it. Tightly-wound.
 
 I quite like *Blue Rev* as an album. I think on the marks of giving me something that behaves as an album, Aaron succeeded. It's early since listening, but I think right now I would struggle to listen to any of these songs not in order. That will probably fade. We'll see if *Blue Rev* has staying power in my rotation, but it certainly succeeds as an album.
-
+The big winner of this album? Me! I picked at a few of *Alvvways*'s other songs and I'm stealing them. I like *Archie Marry Me* and *Dreams Tonite*. Maybe I'll listen to those albums in full later on, but until then, we've a backlog to empty!
 ## 5. Fleetwood Mac - Rumours
 ### Where I listened to this: At work
 Jan 9 - My friend KC told me all about *Daisy Jones & the Six* which piqued my interest in this album, as I really like the idea of exploring albums that are snapshots of stories or the lives of people. I don't know how close *Daisy Jones* is to *Rumours*, but I love a mess.
@@ -77,9 +77,9 @@ As a writer, it's important for me to acknowledge my personal biases in these al
 1. Blue
 2. Purple Rain
 3. Songs in the Key Of Life
-4. Highway 61 Revisited
-5. Rumours
-6.
+4. Blue Rev
+5. Highway 61 Revisited
+6. Rumours
 
 ***
 ### On Deck (have not listened to yet, and in no special order)
