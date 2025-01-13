@@ -27,7 +27,7 @@ A fun connection this album helped me make is the line you can draw from Joni Mi
 
 I ended up listening to this one a lot while in Chicago, more than I expected. I really like this one as an album. Favorites include the first two, 'California', and 'A Case of You'. The Christmas one I skipped a few times, maybe because it's early January and I don't really want any more Christmas music.
 
-This album made me very emotional very quickly, and it also made me emotional on subsequent listens. At the very end of my trip to Chicago I hopped on the Subway going to O'Hare and was struck by something emotional that had grately affected me during my trip. I listened to this album and by the time I got to *My Old Man* I began to cry. I found this fitting, I think, as I was on the *Blue line*.
+This album made me very emotional very quickly, and it made me teary on subsequent listens. At the very end of my trip to Chicago I hopped on the Subway going to O'Hare. I listened to this album and by the time I got to *My Old Man* I began to cry. I think that my body had needed a reason to let some things out and it found a vessel to achieve this goal. I found this fitting, I think, as I was on the *Blue line*.
 
 
 ## 3. Stevie Wonder - Songs in The Key of Life
