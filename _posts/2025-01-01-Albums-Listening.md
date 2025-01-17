@@ -43,7 +43,7 @@ Jan 10 - Recommended by my friend Aaron, my first recommendation from a friend. 
 Molly Rankin & Alvvays don't introduce themselves at the beginning of their album - they plow fast into *Pharmacist*. It's short, tight. I like her vocals. A little *Mazzy Star* in some places.
 *After the Earthquake* is very Johnny Marr, and I mean that with lots of love coming from my days as an angsty 15 year old. The album later follows up with *Pressed*, which is even moreso like the Smiths. Some of these songs could be on *The Queen is Dead*. This doesn't last, however; by the time you get to *Tile By Tile* you are in a completely different world.
 
-The second half of the album mostly maintains the energy as the first half, with a few breaks for air. I think I'll end up enjoying the first half of the album more; I think I'm just both an adrenaline junkie and a fan of the guitars. 
+The second half of the album mostly maintains the energy as the first half, with a few breaks for air. I think I'll end up enjoying the first half of the album more; I think I'm just both an adrenaline junkie and a fan of the guitars.
 
 This album is considered [Shoegaze](https://en.wikipedia.org/wiki/Shoegaze), a genre I had never heard of before. As a guest to the genre, I found it quite nice. As mentioned, my adulation for the Smiths makes me suceptible to guitars with distortion. I'm not sure if it's an element of the genre, or just that this is the first album I have listened to sofar that came out after the year 1985, but the sound is very tightly-wound and put-together, it doesn't let you lose focus on it.
 
@@ -74,6 +74,15 @@ I don't know if it's the Violin or Cello that's doing the thing in *Take Me With
 An Ex who took a University of Minnesota class once informed me that *When Doves Cry* is special because it is the rare funk song that doesn't have a baseline. It's a [pretty fascinating exclusion](https://faroutmagazine.co.uk/the-lost-bass-line-of-prince-hit-when-doves-cry/) (including a Stevie Nicks cameo!).
 
 As a writer, it's important for me to acknowledge my personal biases in these albums. So it's critical to acknowledge that I grew up with people talling me that Prince is great. But, I really think that Prince is really really great. I love how a lot of songs are split into different pieces. I love the synthesizers and the strings, I love that they feel kind of dated. I love how every chorus is distinctly different just by how he sings.
+
+## 7. Bob Dylan - Blood On The tracks
+### Where I listened to this: at work
+Jan 17 - This one I also get to claim Minnesota valor - this album was recorded in Minneapolis! Minnesotans sometimes do cartwheels to claim Dylan's origins are from Minnesota - I do this too - so it's nice to have a notch on the bedpost that counts. Famously, my old undergraduate neighborhood Dinkytown has a mural titled ['Positively 4th street'](https://mndaily.com/wp-content/uploads/2017/05/052917stneighbors1.jpg) on its 4th street intersection. It's almost certainly about a [street in New York](https://faroutmagazine.co.uk/the-story-behind-bob-dylan-positively-4th-street/), but it's a nice mural nonetheless.
+
+Dylan has less P&V than he does in *Highway 61*.
+
+Reading about this album, sources point to it being a breakup album, and the songs feel that way too. Dylan seems sad!
+
 
 ### OFFICIAL POWER RANKING (Subject to change.)
 1. Blue
