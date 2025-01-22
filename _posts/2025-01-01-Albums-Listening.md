@@ -81,8 +81,13 @@ Jan 17 - This one I also get to claim Minnesota valor - this album was recorded 
 
 Dylan has less P&V than he does in *Highway 61*.
 
-Reading about this album, sources point to it being a breakup album, and the songs feel that way too. Dylan seems sad!
+Reading about this album, sources point to it being a breakup album, and the songs feel that way too. Dylan seems sad! They don't make me sad, though. A good listen, to be sure. I liked *You're gonna make me lonesome when you go* and *if you see her, say hello*. I jumped at the idea of listening to *Lily, Rosemary, and the Jack of Hearts* when it came up randomly on my Spotify a few days ago. I think I am slowly, slowly becoming a Dylanhead, but this takes discipline and time.
 
+## 8 Nas - Magic
+
+Jan 21 - the tour's first entrance into Hip-Hop! Thanks Caitlin. Growing up in the Midwest I was uniquely confused about the differences between East Coast and West Coast Hip-Hop. Does that distinciton matter for modern albums? Not sure. Notable to me is that growing up I was mostly exposed to West Coast Hip Hop, thanks to *Grand Theft Auto* and a teenage enjoyment of *N.W.A.* (When I was fifteen I *swore* I got into it before the movie *Straight Outta Compton* came out and I was *not* a bandwagoner - who's to say, really?). A few years ago, when driving through the East Coast, an East Coast Hip-Hop advocate introduced me to some Biggie Smalls, playing *Parties and Bullshit* and a few others, which I enjoyed. I also like *A Tribe Called Quest*, which embarassingly I know only from their prominence on subreddits like *r/listenToThis* from the early 2010's.I shudder to think how much of my taste was formed from Reddit back then - it's in my Dylan
+
+All this to say, I don't have a lot of thoughts on Nas before coming into this, good or bad.
 
 ### OFFICIAL POWER RANKING (Subject to change.)
 1. Blue
@@ -91,11 +96,11 @@ Reading about this album, sources point to it being a breakup album, and the son
 4. Blue Rev
 5. Highway 61 Revisited
 6. Rumours
+7. Blood On The Tracks
 
 ***
 ### On Deck (have not listened to yet, and in no special order)
 #### *Got an album you want to add? Reach out, and I'll probably add it.*
-Blood on the tracks - Bob Dylan
 I never loved a man the way I loved you - Aretha franklin
 The banana album - velvet underground
 Enter the wu tang - wu tang clan
@@ -104,7 +109,6 @@ Something from Ween
 Something from radiohead
 RUSH! - maneskin 
 **CAITLIN**
-Magic - nas
 The juice vol 2 - emotional oranges
 Dear insanity... - dpr ian
 Think im in love with you - chris stapleton
@@ -141,3 +145,7 @@ Led Zepplin Illinois
 Satan i gatan - Veronica Maggio
 **JESSICA**
 Roger Waters - Amused to death
+**ABBY**
+The Highwomen
+Where the Light Is
+Wide Open Spaces
