@@ -131,7 +131,14 @@ I don't know how to grade this, but as far as earworms go, this one is quite str
 
 This is a personal one I am taking for a spin, becaue I quite like a lot of Nick Drake and am getting nervous about hitting my 50 quota. It still counts! I don't think I've listened to this all the way through before.
 
-# Black Country, New Road - Ants From Up THere
+## Black Country, New Road - Ants From Up THere
+### Where I listened to this - at home, at work
+
+May 19 - For personal and personality reasons, I have lately been into things that are very sincere. This is an album that takes itself very seriously, and it's great for that reason. It's grandiose, kinda all over the place, but seems to be very genuine. I admire that. The album heavily leans on the vocals of their lead singer, Isaac Wood, who I kept trying to pin down what their voice reminded me of (Sideshow Bob? Maybe the lead singer of Pulp [Apparently I am not the first person to realize this](https://www.blindedbythefloodlights.com/post/black-country-new-road-ants-from-up-there)?) Wood's not in the band anymore, but I imagine the ensemble of people that
+
+My friend Aaron, of Alvvays fame earlier, gave this one to me in January, and escalated his request as they are coming to Seattle this Saturday.
+
+
 
 ### OFFICIAL POWER RANKING (Subject to change.)
 1. Blue
