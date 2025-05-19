@@ -29,6 +29,7 @@ I ended up listening to this one a lot while in Chicago, more than I expected. I
 
 This album made me very emotional very quickly, and it made me teary on subsequent listens. At the very end of my trip to Chicago I hopped on the Subway going to O'Hare. I listened to this album and by the time I got to *My Old Man* I began to cry. I think that my body had needed a reason to let some things out and it found a vessel to achieve this goal. I found this fitting, I think, as I was on the *Blue line*.
 
+A few months later, and this one has kind of been a standout for me.
 
 ## 3. Stevie Wonder - Songs in The Key of Life
 ### Where I listened to this: A Greyhound Between Wisconsin and Illinois
@@ -98,7 +99,15 @@ Feb 16 - If you haven't listened to 'Repsect' in a while, you should, preferrabl
 
 Oh, I didn't really enjoy this one. I think I "get it", like I can piece its influence and I think there are some neat elements to it. But I wasn't particularly enthralled with this one. I liked Nico's vocals, and I love Lou Reed. But I found this one uninteresting.
 
-## 10. Djo - The Crux
+## 11. Are you Experienced? - Jimi hendrix
+### Where I listened - Mexico City
+
+I did a lot of walking in Mexico City. I effevtively walked about six miles heading south to meet a dinner reservation I didn't feel like ubering to, and some of the public buses were either infrequent or full. This is how I listened to these past few albums for the first times. They got repeat listens, to be sure.
+
+
+
+
+## 12. Djo - The Crux
 ## Where I listened to this: Around Seattle, and then on vinyl, and then in concert
 
 TODO
@@ -131,10 +140,10 @@ This is a personal one I am taking for a spin, becaue I quite like a lot of Nick
 4. Blue Rev
 5. Highway 61 Revisited
 6. I never loved a man the way I loved you
-6. Magic
-7. Rumours
-8. Blood On The Tracks
-9. Andy Warhol
+7. Magic
+8. Rumours
+9. Blood On The Tracks
+10. Andy Warhol
 
 ***
 ### On Deck (have not listened to yet, and in no special order)
