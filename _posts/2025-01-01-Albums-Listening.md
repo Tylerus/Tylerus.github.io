@@ -87,7 +87,42 @@ Reading about this album, sources point to it being a breakup album, and the son
 
 Jan 21 - the tour's first entrance into Hip-Hop! Thanks Caitlin. Growing up in the Midwest I was uniquely confused about the differences between East Coast and West Coast Hip-Hop. Does that distinciton matter for modern albums? Not sure. Notable to me is that growing up I was mostly exposed to West Coast Hip Hop, thanks to *Grand Theft Auto* and a teenage enjoyment of *N.W.A.* (When I was fifteen I *swore* I got into it before the movie *Straight Outta Compton* came out and I was *not* a bandwagoner - who's to say, really?). A few years ago, when driving through the East Coast, an East Coast Hip-Hop advocate introduced me to some Biggie Smalls, playing *Parties and Bullshit* and a few others, which I enjoyed. I also like *A Tribe Called Quest*, which embarassingly I know only from their prominence on subreddits like *r/listenToThis* from the early 2010's.I shudder to think how much of my taste was formed from Reddit back then - it's in my Dylan
 
-All this to say, I don't have a lot of thoughts on Nas before coming into this, good or bad.
+All this to say, I don't have a lot of thoughts on Nas before coming into this, good or bad. What's tough is, after a month or so, and after a few listens, I still don't have a ton of thoughts. This one is unobjectionalble to me, but not quite a standout.
+
+## 9. Aretha Franklin - I Never Loved a Man The Way I Love You
+### Where I listened to this: Mexico City Streets
+Feb 16 - If you haven't listened to 'Repsect' in a while, you should, preferrably as soon as possible. This song is still prevelent in the American lexicon but if you last heard it in a Pep Band show or a car commercial or something, give it a two-minute listen. It's incredible. It captures your attention immediately, commands the airwaves, and doesn't waste a moment of time before leaving just two minutes later. It's fun, it's feminist, it's kind of funny (I just love the backing vocals that repeat sockittome sockittome sockittome sockittome...).I'm not really saying anything new here, but you should still go listen to it.
+
+## 10 The Velvet Underground - Andy Warhol
+### Where I listened to this: Mexico City
+
+Oh, I didn't really enjoy this one. I think I "get it", like I can piece its influence and I think there are some neat elements to it. But I wasn't particularly enthralled with this one. I liked Nico's vocals, and I love Lou Reed. But I found this one uninteresting.
+
+## 10. Djo - The Crux
+## Where I listened to this: Around Seattle, and then on vinyl, and then in concert
+
+TODO
+
+## Oingo Boingo - Dead Mans party
+### Where I litened to this: At work
+
+May 15 - Caitlin's second entry on the board.
+When I was first getting 'into' music, I was heavily influenced by what my parents were listening to, and they were actively being influenced by the advent of Siriux XM radio making its way onto their new Ford Fusion. For my mom, this reinvigorated a bunch of eighties music that she had long forgotten, and my mother, having a knack for names or bands and artists, was eager to drive and hear songs she could recongize from thirty years earlier. Among these was Oingo Boingo's "Weird Science". I remember this so well likely because of the silly name (I also think of 'Puttin on the Ritz by the band Taco), and I remmeber the song sticking out to me so much I paid for it on iTunes - it was probably song number eight or nine on my iPod.
+
+I had always treated Oingo Boingo as a one-note band from a phase of 80s music from my early teens, and hadn't given them a second thought. I was intruiged to see Caitlin list them.
+
+My biggest takeaway after two listens is this: I think we have forgotten how to make music like this. I feel like you really can't commercialize and distrubute an album that has so many six minute songs with so much musical activity and such an outlandish tone. I don't know if it's impossible, but the launch window would be so slim.
+
+I don't know how to grade this, but as far as earworms go, this one is quite strong. I have OB's "Just another day-y-y" from the opening track in my head incessently.
+
+
+
+## Nick Drake - Pink Moon
+### Where I listened to this - At home on vinyl
+
+This is a personal one I am taking for a spin, becaue I quite like a lot of Nick Drake and am getting nervous about hitting my 50 quota. It still counts! I don't think I've listened to this all the way through before.
+
+# Black Country, New Road - Ants From Up THere
 
 ### OFFICIAL POWER RANKING (Subject to change.)
 1. Blue
@@ -95,14 +130,15 @@ All this to say, I don't have a lot of thoughts on Nas before coming into this, 
 3. Songs in the Key Of Life
 4. Blue Rev
 5. Highway 61 Revisited
-6. Rumours
-7. Blood On The Tracks
+6. I never loved a man the way I loved you
+6. Magic
+7. Rumours
+8. Blood On The Tracks
+9. Andy Warhol
 
 ***
 ### On Deck (have not listened to yet, and in no special order)
 #### *Got an album you want to add? Reach out, and I'll probably add it.*
-I never loved a man the way I loved you - Aretha franklin
-The banana album - velvet underground
 Enter the wu tang - wu tang clan
 Are you experienced - jimi hendrix
 Something from Ween
@@ -114,17 +150,15 @@ Dear insanity... - dpr ian
 Think im in love with you - chris stapleton
 THE ANGEL YOU DONT KNOW - amaarae
 Love and rockets - love and rockets
-Dead mans party - oingo boingo
 Multitude - stromae
 DIM the gazzette
 **AARON**
 Pure Comedy - Father John Misty
-Ants From Up There - Black Country, New Road
 IV - BADBADNOTGOOD 
 Rat Saw God - Wednesday 
 Dummy - Portishead
 Sometimes I Sit and Think - Courtney Barnett
-**GAGE**
+**LYDIA**
  Norm - Andy Shauf
 Two Star and The Dream Police (mk.gee), obviously
 To Let A Good Thing Die - Bruno Major
